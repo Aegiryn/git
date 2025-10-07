@@ -1,1 +1,0 @@
-Un guerrero sin igual
